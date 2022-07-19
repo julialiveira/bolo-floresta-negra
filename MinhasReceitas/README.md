@@ -1,0 +1,1 @@
+O Bolo Floresta Negra surgiu na região com este mesmo nome, na Alemanha. O segredo para deixá-lo irresistível é caprichar nas cerejas, tanto no recheio quanto na cobertura, diz que também é bom deixar a massa bem molhada com a calda e finalizar com confeitos ou raspas de chocolate. O sucesso é garantido, experimente esta maravilha!!!
